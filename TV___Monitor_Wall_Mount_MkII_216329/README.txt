@@ -1,1 +1,0 @@
-TV / Monitor Wall Mount MkII by natko on Thingiverse: https://www.thingiverse.com/thing:216329
