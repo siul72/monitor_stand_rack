@@ -1,1 +1,0 @@
-	Drum Rack Clamp for Vertical tube  by vargamihaly993 on Thingiverse: https://www.thingiverse.com/thing:2892274

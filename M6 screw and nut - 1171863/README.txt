@@ -1,1 +1,0 @@
-M6 screw and nut by henkjanv10 on Thingiverse: https://www.thingiverse.com/thing:1171863
